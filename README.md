@@ -7,6 +7,8 @@
 
 - 📫 How to reach me **https://t.me/vmp_rp**
 
+- ⚡ Fun fact **I don't use GitHub very often and don't post all my projects.**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
